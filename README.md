@@ -1,4 +1,4 @@
-#Hello there 👋
+Hello there 👋
 
 I am Deekshitha Reddy Chappidi
 
