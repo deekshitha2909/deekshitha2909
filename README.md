@@ -6,6 +6,6 @@ I am Deekshitha Reddy Chappidi
 
 📫 How to reach me: https://www.linkedin.com/in/deekshitha-reddy-chappidi/
 
-💬 Link to my Portfolio: 
+💬 Link to my Portfolio: https://deekshithachappidi.com
 
 😄 Pronouns: She/Her
